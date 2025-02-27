@@ -1,0 +1,1 @@
+https://ankakras.atlassian.net/jira/software/projects/PHOT24/list?atlOrigin=eyJpIjoiNGJiMTc3ZTE3MGE3NGI3Njg3OWNmZWJkZDU2YzcwNzQiLCJwIjoiaiJ9
